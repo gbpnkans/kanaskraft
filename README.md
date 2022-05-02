@@ -1,4 +1,4 @@
-## Welcome to kanaskraft Pottery
+## Welcome to kanaskraft !
 
 We produce all of our clay products handmade and in the USA !
 
